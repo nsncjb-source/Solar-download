@@ -1,1 +1,1 @@
-# Solar-download
+https://discord.gg/FPuYZDyXve
