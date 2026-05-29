@@ -1,4 +1,4 @@
-Vortix External (DISCONTINUED, V2 RELEASED ON https://discord.gg/tyKhy29qN7)
+Vortix External 
 ---------------
 
 <img width="1083" height="826" alt="image" src="https://github.com/user-attachments/assets/3017c675-1de6-4c4d-a7bd-e471d1665fc5" />
